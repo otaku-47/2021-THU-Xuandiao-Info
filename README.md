@@ -12,4 +12,4 @@
 ## 江苏省
 ~~【9月25日上午9点】[江海明珠 通揽英才 2020南通市长清华行活动](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=203158228)~~
 
-【10月14日17点】[江苏省2021年名校优生选调工作公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=204305002)
+【10月14日17点截止】[江苏省2021年名校优生选调工作公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=204305002)
