@@ -18,3 +18,4 @@
 
 ## 山东省
 【10月10日14点】[2020年名校引才宣讲暨“山东—名校人才直通车”北京站活动公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=205396827)
+【10月15日16点截止】[山东省2021年度面向清华大学选拔录用选调生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=206673240)
