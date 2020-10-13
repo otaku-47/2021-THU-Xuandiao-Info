@@ -30,3 +30,9 @@
 
 ## 吉林省
 【10曰28日17点截止】[2021年长春市面向清华大学招录专业选调生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=209382129)
+
+## 山西省
+【10月21日17点截止】[山西省2021年面向清华大学选调优秀高校毕业生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=209885915)
+
+## 福建省
+【10月16日15点】[关于福州市引进优秀高校毕业生政策宣讲对接会的公告（清华）](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=209885919)
