@@ -36,3 +36,6 @@
 
 ## 福建省
 【10月16日15点】[关于福州市引进优秀高校毕业生政策宣讲对接会的公告（清华）](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=209885919)
+
+## 上海市
+【10月20日10点宣讲会，10月30日18点截止】[上海市2021年度专项选调应届优秀大学毕业生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=210306084)
