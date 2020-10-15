@@ -16,14 +16,14 @@
 ## 江苏省
 ~~【9月25日上午9点】[江海明珠 通揽英才 2020南通市长清华行活动](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=203158228)~~
 
-【10月14日17点截止】[江苏省2021年名校优生选调工作公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=204305002)
+【10月17日16点网报截止】[江苏省2021年名校优生选调工作公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=204305002)
 
 ## 山东省
 ~~【10月10日14点】[2020年名校引才宣讲暨“山东—名校人才直通车”北京站活动公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=205396827)~~
 
 【10月15日16点截止】[山东省2021年度面向清华大学选拔录用选调生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=206673240)
 
-【10月12日17点截止】[山东省2021年度选拔录用选调生报名情况统计表](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=208453664)
+~~【10月14日17点截止】[山东省2021年度选拔录用选调生报名情况统计表](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=208453664)~~
 
 ## 重庆市
 【10月23日12点前交表，11月6日17点截止】[重庆市面向清华大学定向选调2021届急需紧缺专业应届优秀大学毕业生简章](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=208713253)
