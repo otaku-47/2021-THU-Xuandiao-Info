@@ -10,6 +10,8 @@
 
 ~~【10月15日18:30开始】[关于四川省面向清华大学选调2021届优秀大学毕业生笔试有关事项的公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=208713251)~~
 
+~~【10月18日面试】[关于四川省面向清华大学、北京大学选调2021届优秀大学毕业生笔试合格分数线和面试有关事宜的公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=211035170)~~
+
 ## 浙江省
 ~~【9月15日上午10点】[浙江省面向清华大学招录选调生宣讲会](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=200736287)~~
 
@@ -18,7 +20,7 @@
 ## 江苏省
 ~~【9月25日上午9点】[江海明珠 通揽英才 2020南通市长清华行活动](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=203158228)~~
 
-【10月17日16点网报截止】[江苏省2021年名校优生选调工作公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=204305002)
+~~【10月17日16点网报截止】[江苏省2021年名校优生选调工作公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=204305002)~~
 
 ## 山东省
 ~~【10月10日14点】[2020年名校引才宣讲暨“山东—名校人才直通车”北京站活动公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=205396827)~~
@@ -36,8 +38,13 @@
 ## 山西省
 【10月21日17点截止】[山西省2021年面向清华大学选调优秀高校毕业生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=209885915)
 
+【10月20日14点】[山西省面向清华大学人才引进暨选调生政策宣介活动公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=211035171)
+
 ## 福建省
-【10月16日15点】[关于福州市引进优秀高校毕业生政策宣讲对接会的公告（清华）](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=209885919)
+~~【10月16日15点】[关于福州市引进优秀高校毕业生政策宣讲对接会的公告（清华）](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=209885919)~~
 
 ## 上海市
 【10月20日10点宣讲会，10月30日18点截止】[上海市2021年度专项选调应届优秀大学毕业生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=210306084)
+
+## 北京市
+【10月30日17点登录】[北京市2021年度定向选调和“优培计划”招聘应届优秀大学毕业生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=211035174)
