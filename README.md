@@ -12,6 +12,8 @@
 
 ~~【10月18日面试】[关于四川省面向清华大学、北京大学选调2021届优秀大学毕业生笔试合格分数线和面试有关事宜的公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=211035170)~~
 
+[关于四川省面向清华大学选调2021届优秀大学毕业生面试合格分数线及签约有关事项的公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=212460953)
+
 ## 浙江省
 ~~【9月15日上午10点】[浙江省面向清华大学招录选调生宣讲会](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=200736287)~~
 
@@ -29,6 +31,8 @@
 
 ~~【10月14日17点截止】[山东省2021年度选拔录用选调生报名情况统计表](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=208453664)~~
 
+[关于公布山东省2021年度面向北京大学、清华大学选拔录用选调生笔试成绩的通知](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=212070016)
+
 ## 重庆市
 【10月23日12点前交表，11月6日17点截止】[重庆市面向清华大学定向选调2021届急需紧缺专业应届优秀大学毕业生简章](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=208713253)
 
@@ -38,7 +42,7 @@
 ## 山西省
 【10月21日17点截止】[山西省2021年面向清华大学选调优秀高校毕业生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=209885915)
 
-【10月20日14点】[山西省面向清华大学人才引进暨选调生政策宣介活动公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=211035171)
+~~【10月20日14点】[山西省面向清华大学人才引进暨选调生政策宣介活动公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=211035171)~~
 
 ## 福建省
 ~~【10月16日15点】[关于福州市引进优秀高校毕业生政策宣讲对接会的公告（清华）](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=209885919)~~
