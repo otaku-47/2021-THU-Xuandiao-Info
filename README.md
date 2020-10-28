@@ -52,6 +52,8 @@
 ## 上海市
 【10月20日10点宣讲会，10月30日18点截止】[上海市2021年度专项选调应届优秀大学毕业生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=210306084)
 
+【11月8日12点截止】[2021年浦东新区面向清华大学招募“上海市选调生”及党政机关储备人才公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=214358153)
+
 ## 北京市
 【10月30日17点截止】[北京市2021年度定向选调和“优培计划”招聘应届优秀大学毕业生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=211035174)
 
@@ -62,3 +64,6 @@
 
 ## 宁夏回族自治区
 【10月30日截止】[宁夏2020年招录选调生拟录用人员公示](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=213860508)
+
+## 江西省
+【11月13日17点截止】[江西省2021年从清华大学选调应届优秀大学毕业生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=214358163)
