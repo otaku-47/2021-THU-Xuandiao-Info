@@ -46,8 +46,12 @@
 
 ~~【10月20日14点】[山西省面向清华大学人才引进暨选调生政策宣介活动公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=211035171)~~
 
+【11月5日截止】[山西省2021年面向清华大学选调优秀高校毕业生拟录用人员公示（二）](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=215209865)
+
 ## 福建省
 ~~【10月16日15点】[关于福州市引进优秀高校毕业生政策宣讲对接会的公告（清华）](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=209885919)~~
+
+【11月18日18点截止】[福建省2021届引进生选拔公告（企业类、教育科研类、医疗卫生类、规划建设类）](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=215126365)
 
 ## 上海市
 【10月20日10点宣讲会，10月30日18点截止】[上海市2021年度专项选调应届优秀大学毕业生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=210306084)
@@ -77,3 +81,6 @@
 【11月24日18点截止，11月23日17点截止】[天津市2021年度定向清华大学、北京大学招录选调生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=214839723)
 
 【11月24日18点截止，11月23日17点截止】[天津市2021年度定向35所重点高校招录选调生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=214839724)
+
+## 广西壮族自治区
+【11月25日截止】[广西2021年定向清华大学招录选调生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=215209863)
