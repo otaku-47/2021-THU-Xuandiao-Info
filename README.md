@@ -24,6 +24,8 @@
 
 ~~【10月17日16点网报截止】[江苏省2021年名校优生选调工作公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=204305002)~~
 
+【11月6日17点交表，11月9日16点截止】[江苏省2021年应届优秀大学毕业生选调工作公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=215213035)
+
 ## 山东省
 ~~【10月10日14点】[2020年名校引才宣讲暨“山东—名校人才直通车”北京站活动公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=205396827)~~
 
@@ -54,12 +56,12 @@
 【11月18日18点截止】[福建省2021届引进生选拔公告（企业类、教育科研类、医疗卫生类、规划建设类）](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=215126365)
 
 ## 上海市
-【10月20日10点宣讲会，10月30日18点截止】[上海市2021年度专项选调应届优秀大学毕业生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=210306084)
+~~【10月20日10点宣讲会，10月30日18点截止】[上海市2021年度专项选调应届优秀大学毕业生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=210306084)~~
 
 【11月8日12点截止】[2021年浦东新区面向清华大学招募“上海市选调生”及党政机关储备人才公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=214358153)
 
 ## 北京市
-【10月30日17点截止】[北京市2021年度定向选调和“优培计划”招聘应届优秀大学毕业生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=211035174)
+~~【10月30日17点截止】[北京市2021年度定向选调和“优培计划”招聘应届优秀大学毕业生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=211035174)~~
 
 [北京市朝阳区2021年公务员招录暨高校毕业生选培计划公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=213860521)
 
@@ -69,7 +71,7 @@
 【10月30日12点交表，11月4日18点截止】[内蒙古自治区2021年度面向清华大学选调应届优秀大学毕业生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=213860506)
 
 ## 宁夏回族自治区
-【10月30日截止】[宁夏2020年招录选调生拟录用人员公示](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=213860508)
+~~【10月30日截止】[宁夏2020年招录选调生拟录用人员公示](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=213860508)~~
 
 ## 江西省
 【11月13日17点截止】[江西省2021年从清华大学选调应届优秀大学毕业生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=214358163)
@@ -84,3 +86,9 @@
 
 ## 广西壮族自治区
 【11月25日截止】[广西2021年定向清华大学招录选调生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=215209863)
+
+## 陕西省
+【11月6日17点截至】[2021年陕西省面向清华大学招录选调生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=215390376)
+
+## 黑龙江省
+【11月12日17点交表，11月14日17点30截止】[黑龙江省2021年度面向清华大学定向选调应届优秀毕业生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=215213034)
