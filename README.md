@@ -83,6 +83,8 @@
 
 【11月30日17点截止】[2021年门头沟区“开门纳贤、共绘京西”百人计划面向优秀高校毕业生招录公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=221442653)
 
+【11月24日14点】[梧桐引凤聚顺义，筑梦国门空港城——北京市顺义区第四期“梧桐工程—干部人才引进计划”暨2021年公务员、事业编公开招考推介会](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=221720049)
+
 ## 内蒙古自治区
 ~~【10月30日12点交表，11月4日18点截止】[内蒙古自治区2021年度面向清华大学选调应届优秀大学毕业生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=213860506)~~
 
