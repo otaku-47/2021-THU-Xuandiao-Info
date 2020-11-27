@@ -107,7 +107,7 @@
 ~~【11月24日18点截止，11月23日17点截止】[天津市2021年度定向35所重点高校招录选调生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=214839724)~~
 
 ## 广西壮族自治区
-【11月25日截止】[广西2021年定向清华大学招录选调生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=215209863)
+~~【11月25日截止】[广西2021年定向清华大学招录选调生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=215209863)~~
 
 ## 陕西省
 ~~【11月6日17点截至】[2021年陕西省面向清华大学招录选调生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=215390376)~~
@@ -125,3 +125,6 @@
 
 ## 贵州省
 【11月27日17点交表，12月4日17点截止】[贵州省2021年定向部分重点高校选调优秀毕业生公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=221644947)
+
+## 湖南省
+【12月4日17点截止】[湖南省2021年选调生选拔公告](http://career.cic.tsinghua.edu.cn/xsglxt/f/jyxt/anony/showZwxx?zpxxid=222537237)
